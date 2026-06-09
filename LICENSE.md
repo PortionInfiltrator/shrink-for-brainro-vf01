@@ -1,4 +1,4 @@
-
+Experience shrink for brainrots like never before with shrink for brainrots Script new, the #1 Script. Includes unlimited stamina and no clip for
 
 
 
